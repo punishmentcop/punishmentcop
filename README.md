@@ -2,3 +2,6 @@
 ## VENSU | Please call me Vick or Ven! | He/Him Nonbinary
 [Straw.page](https://ven-pt.straw.page/) | [Atabook](https://emitvensugarti.atabook.org/)
 > Profile for [Ponytown](https://pony.town/)
+
+Often playing with my friend, Dino. We're a 2 in 1 package deal. 
+Feel free to cuddle and hide with me, i don't mind!
