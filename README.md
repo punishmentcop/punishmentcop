@@ -5,3 +5,4 @@
 
 Often playing with my friend, Dino. We're a 2 in 1 package deal. 
 Feel free to cuddle and hide with me, i don't mind!
+Really highly encorage you to int with me (Unless i'm in BUSY status!)
